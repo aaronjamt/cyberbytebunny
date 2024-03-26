@@ -4,4 +4,3 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me: @cyberbytebunny on IG and @emi_ernest0 on Twitter
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: My dog's name is Beans!!
